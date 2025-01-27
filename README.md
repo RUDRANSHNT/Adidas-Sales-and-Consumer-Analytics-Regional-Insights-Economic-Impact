@@ -1,0 +1,1 @@
+# Adidas-Sales-and-Consumer-Analytics-Regional-Insights-Economic-Impact
